@@ -1,4 +1,4 @@
-
+Enhance your Betternet experience with secure Betternet Plugin | high-speed-servers + torrenting-support, the #1 plugin. Includes high-speed-servers and torrenting-support for a
 
 
 
